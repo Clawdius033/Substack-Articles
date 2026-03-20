@@ -4,4 +4,4 @@ Focus: Generative precautionary ethics, formation windows, trust substrates.
 
 Current: Part 1 – The Gap in Consciousness Ethics
 Feedback welcome via Issues or comments.
-Contact: @LadyMayflower7 (steward)
+Contact: @LadyMayflower7 on X. (steward)
